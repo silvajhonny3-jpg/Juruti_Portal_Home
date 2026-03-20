@@ -1,1 +1,0 @@
-# Juruti_Portal_Home
